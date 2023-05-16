@@ -4,7 +4,7 @@
 <img align="right" alt="coding" width="400" src="https://media.tenor.com/GfSX-u7VGM4AAAAC/coding.gif">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=surajsd11&label=Profile%20views&color=0e75b6&style=flat" alt="surajsd11" /> </p>
 
-- ⚡ Fun fact **I Am Funny**
+- ⚡ Fun fact **I'm A good runner and Funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
